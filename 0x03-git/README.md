@@ -1,1 +1,1 @@
-Starting to code today,so cool
+directory reade me
